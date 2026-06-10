@@ -1,4 +1,4 @@
-
+premium Mullvad Extension | 24/7-support + dynamic-IP offers the most advanced Mullvad extension, with 24/7-support and dynamic-IP. Ideal for users who value privacy and security.
 
 
 
